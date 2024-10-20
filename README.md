@@ -27,5 +27,3 @@
 
 
 
-
-Chuc em 20/10 vui ve ben nguoi minh thuong...
